@@ -43,7 +43,7 @@ Barista
 
 
 ###### Leadership Group, Kent, WA	September 2016-June 2017
-Event Lead 
+Project Manager 
 *	Developed excellent verbal skills, acquiring the ability to instruct teams of 60 people to ensure that expected results are achieved through highly complex situations within specified timeframe.
 *	Allocated and supervised different groups of people, depending on skill set and scheduling to each case to ensure the outcome was met optimally.
 *	Managed administrative logistics of event planning, including fee collection, event booking, and event promotions. 
